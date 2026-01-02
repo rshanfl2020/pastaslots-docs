@@ -1,0 +1,1 @@
+# pastaslots-docs
